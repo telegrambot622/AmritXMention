@@ -222,5 +222,5 @@ client.run_until_disconnected()
 
 # A Powerful Music And Management Bot
 # Property Of Branded Indian Largest Support Group
-# Rocks © @BRANDRD_BOT © BRANDRD
-# Owner BRANDRD + BRANDRD_BOT + BRANDED_WORLD + BRANDRD SUPPORT CHAT 
+# Rocks © @Emotional_Feelings_Channel © BRANDRD
+# Owner BRANDRD + Emotional_Feelings_Channel + FRIENDSGROUPALLINDIA + BRANDRD SUPPORT CHAT 
