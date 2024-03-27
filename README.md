@@ -38,19 +38,19 @@
 > ❤️‍🔥 𝗧𝗵𝗮𝗻𝗸𝘀 𝘁𝗼 𝗲𝘃𝗲𝗿𝘆𝗼𝗻𝗲 𝗳𝗼𝗿 𝘂𝘀𝗶𝗻𝗴 𝗕𝗿𝗮𝗻𝗱𝗲𝗱𝗠𝗲𝗻𝘁𝗶𝗼𝗻, 𝗧𝗵𝗮𝘁 𝗶𝘀 𝘁𝗵𝗲 𝗴𝗿𝗲𝗮𝘁𝗲𝘀𝘁 𝗽𝗹𝗲𝗮𝘀𝘂𝗿𝗲 𝘄𝗲 𝗵𝗮𝘃𝗲 !
 
 # ❤️ Support
-<a href="https://t.me/BRANDED_WORLD"><img src="https://img.shields.io/badge/Join-Telegram%20Channel-red.svg?logo=Telegram"></a>
+<a href="https://t.me/AMRIT_X_SUPPORTS"><img src="https://img.shields.io/badge/Join-Telegram%20Channel-red.svg?logo=Telegram"></a>
 
 <a href="https://t.me/BRANDRD_BOT"><img src="https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram"></a>
 
-<a href="https://t.me/BRANDED_PAID_CC"><img src="https://img.shields.io/badge/Heroku-Me%20Free cc-blue.svg?logo=telegram"></a>
+<a href="https://t.me/AMRIT_X_SUPPORT"><img src="https://img.shields.io/badge/Heroku-Me%20Free cc-blue.svg?logo=telegram"></a>
 
 
 ## CREDITS
 
-- [ʙʀᴀɴᴅᴇᴅ ᴋɪɴɢ](https://t.me/BRANDEDKING82)
+- [ʙʀᴀɴᴅᴇᴅ ᴋɪɴɢ](https://t.me/amrit_Koniki)
 
 - [ʏᴏᴜᴛᴜʙᴇ](https://www.youtube.com/TrickyBranded)
 
-- [ꜱᴜᴘᴘᴏʀᴛ](https://t.me/BRANDED_PAID_CC)
+- [ꜱᴜᴘᴘᴏʀᴛ](https://t.me/AMRIT_X_SUPPORT)
 
 
